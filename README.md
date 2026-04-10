@@ -17,4 +17,4 @@ https://QQQ-2025.github.io
 
 ## Kontakt
 For spørsmål eller mer informasjon, vennligst ta kontakt via e-post:  
-melding@pm.styrewebmail.com
+ungefolkemusikere@gmail.com
