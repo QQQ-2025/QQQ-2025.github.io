@@ -43,6 +43,7 @@ Gruppa er et samarbeid med Oslo Kulturskole og er støttet av Bergesenstiftelsen
 Fele
 
 Jon Brodal
+
 Olav Christer Rossebø
 
 Olav Christer (Laffen)  er utdannet folkemusiker med fele som hovedinstrument ved musikkhøgskolen i Oslo. Han har også utdannelse i praktisk pedagogikk fra samme sted. I tillegg til å være frilans musiker underviser han i fele og hardingfele ved Oslo kulturskole. Olav Christer setter samspillet høyt og har vært med på å bygge opp en rekke band og ensembler. Gjennom en rekke studieturer og turnéer i USA har han også fordypet seg i amerikansk folkemusikk.  
