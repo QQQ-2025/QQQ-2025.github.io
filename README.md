@@ -44,23 +44,29 @@ Fele
 
 Jon Brodal
 Olav Christer Rossebø
+
 Olav Christer (Laffen)  er utdannet folkemusiker med fele som hovedinstrument ved musikkhøgskolen i Oslo. Han har også utdannelse i praktisk pedagogikk fra samme sted. I tillegg til å være frilans musiker underviser han i fele og hardingfele ved Oslo kulturskole. Olav Christer setter samspillet høyt og har vært med på å bygge opp en rekke band og ensembler. Gjennom en rekke studieturer og turnéer i USA har han også fordypet seg i amerikansk folkemusikk.  
 
 Nikolai Storevik
+
 Nikolai begynte som læresvein i folkemusikk på fele og hardingfele hos spelemannen Arne M Sølvberg i Nordfjord.I tillegg til 13 års lære hjå Arne, har han master i jazz/improvisasjon ved Universitetet i Stavanger og årstudium i praktisk pedagogikk ved Norges musikkhøyskole. Utanom undervisninga jobbar han i Sogn og Fjordane folkemusikklag og er frilans musikar. Han likar å sjå elevane meistre å spele, oppleve speleglede gjennom samspel og arrangere folkemusikklåtar med stemmer tilpassa ulike nivå. 
 
 Mats Johansson
+
 Mats Johansson begynte å spille fele med inspirasjon fra morfaren sin, som var selvlært dansemusiker med foxtrot og swing osv. på repertoaret. Etter hvert utviklet han en sterk interesse for folkemusikken gjennom kontakt med profilerte spellmenn i Västergötland. Han har studert folkemusikk ved USN campus Rauland, og har senere tatt master i etnomusikologi og doktorgrad i musikkvitenskap. I dag arbeider han først og fremst med forskning på og gjennom musikk. Som spellmann og pedagog er Mats særlig opptatt av den musikalske friheten som ligger i folkemusikken, med vekt på personlig uttrykk, variasjon og improvisasjon. 
 
 Sang
 
 Hilde Vehusheia
+
 Hilde Baustad Vehusheia er folkesanger og kommer fra Dombås i Gudbrandsdalen. Hun oppdaget folkesangen som 17-åring og har drevet med det siden. Hilde har studert på folkemusikklinja på Vinstra vidaregåande skule og har bachelorgrad i utøvende folkesang fra Norges musikkhøgskole. Hun har jobbet som folkesanglærer i Oslo Kultuskole siden 2008. 
 
 Runa Kvalsund
+
 Runa Kvalsund er folkesanger, låtskriver og musikkpedagog fra Trondheim, utdanna ved Norges musikkhøgskole. Hun arbeider frilans som pedagog og utøver, som arkivformidler i FolkArkiv Trøndelag og er folkesanginstruktør i Unge folkemusikere i Oslo.  
 
 Bjørn Sigurd Glorvigen
+
 Bjørn Sigurd Glorvigen er utdanna folkesongar ved NMH og kjem ifrå Dovre i Gudbrandsdalen. I tillegg til å vere soloutøvar har han korsongar i Oslo kammerkor i ei årrekke. Han er stadig med å syng saman med dei, både som kvedar-solist og korist. Han er allsidig og har jobba som songpedagog i 10 år (pop/rock/folkemusikk) og var også med å starte UFO i 2011. 
 
 ## Kurs og arrangementer
