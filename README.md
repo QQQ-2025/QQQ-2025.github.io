@@ -72,14 +72,19 @@ Bjørn Sigurd Glorvigen er utdanna folkesongar ved NMH og kjem ifrå Dovre i Gud
 
 ## Kurs og arrangementer
 Kommende
-Felekurs 10 -19 år med Gjermund og Einar Olav Larsen 12. september 2026
 
-Felkurs 6-9 år med Ingvild Blæsterdalen 12. september 2026
+[Felekurs 10 -19 år med Gjermund og Einar Olav Larsen 12. september 2026](https://ufo.hoopla.no/event/1949326679)
+
+[Felkurs 6-9 år med Ingvild Blæsterdalen 12. september 2026](https://ufo.hoopla.no/event/410780890)
 
 Tidligere
-Minikappleik under Distriktskappleiken Oslo april 2026
-Felekurs med Vegard Vårdal mars 2026
-Folkesang med Une Lorenze Onarheim, Bjørn Sigurd Glorvigen og Hilde Vehusheia januar 2026
+
+[Minikappleik under Distriktskappleiken Oslo april 2026](https://www.facebook.com/events/985242910620098/?acontext=%7B%22ref%22%3A%2252%22%2C%22action_history%22%3A%22[%7B%5C%22surface%5C%22%3A%5C%22share_link%5C%22%2C%5C%22mechanism%5C%22%3A%5C%22share_link%5C%22%2C%5C%22extra_data%5C%22%3A%7B%5C%22invite_link_id%5C%22%3A1006860718582013%7D%7D]%22%7D)
+
+[Felekurs med Vegard Vårdal mars 2026](https://ufo.hoopla.no/event/141568313)
+
+[Folkesang med Une Lorenze Onarheim, Bjørn Sigurd Glorvigen og Hilde Vehusheia januar 2026](https://ufo.hoopla.no/event/1276445782)
+
 Oslosamlinga november 2025
 
 ## Foreldrestyret
